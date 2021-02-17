@@ -1,0 +1,1 @@
+Why people writes blogs?
